@@ -1,4 +1,4 @@
-# 
+# Premium momentum trading bot add-ons for Mac OS | Professional momentum trading bot add-ons for PC Windows. Featuring decentralized exchange api and futures trading — optimized for maximum performance.
 
 
 
